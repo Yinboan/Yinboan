@@ -6,7 +6,7 @@
 
 <img src="https://i.imgur.com/kdKhgx6.gif" width="240px" align="center">
 <img src="https://uploads.xuexila.com/allimg/1611/862-161110100210.gif" width="240px" align="center">
-<img src="http://http://47.102.113.236/static/job.gif" width="240px" align="center">
+<img src="http://47.102.113.236/static/job.gif" width="240px" align="center">
 
 <br><br>:coffee: Wanna chat? :point_right: @ me on <a href="https://twitter.com/Hi_Yin66">Twitter</a>
 <!---
